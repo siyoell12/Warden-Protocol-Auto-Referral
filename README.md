@@ -33,6 +33,6 @@ Stay updated, get access, and receive support through our channels:
 💬 Discord Server: https://discord.gg/Tuy2bR6CkU
 
 📺 YouTube Channel: https://www.youtube.com/@airdropindependen
-sdas
+sdasdsa
 sd
-sdsa
+sdsasadf
